@@ -1,2 +1,8 @@
 # pain
-pain of being human
+the ones you love deal the deepest wounds.
+
+the deepest wounds are from the ones that are gone.
+
+so speak the truth but stay silent if the pain will outlive the victum.
+
+-ZL
